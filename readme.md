@@ -1,1 +1,1 @@
-Juegen desde este enlaze: https://optimusdrift.github.io/SoloQuieroIrALaCama/
+Juegen desde este enlace: https://optimusdrift.github.io/SoloQuieroIrALaCama/
